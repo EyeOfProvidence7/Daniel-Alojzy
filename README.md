@@ -8,3 +8,5 @@ His mission is to become the most powerful warrior Lordran has ever laid eyes up
 
 (idea: postmaterial
 reality.)
+
+(Edit: Alojzy Unchained is V 2.0 Alojzy, one less level than max).
